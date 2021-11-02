@@ -1,4 +1,4 @@
-# CRYPTOMUSIM - [CROM] 
+# CRYPTOMUSIC - [CROM] 
 
 [CRYPTOMUSIC] - Advanced Crypto Technology
 
