@@ -1,4 +1,4 @@
-# CRYPTOMUSIC - [CROM] NFT EXCHANGE
+# CRYPTOMUSIC - [CROM] - NFT + EXCHANGE
 
 [CRYPTOMUSIC] - Advanced Crypto Technology
 
